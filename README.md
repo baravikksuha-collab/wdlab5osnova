@@ -1,0 +1,1 @@
+# wdlab5osnova
